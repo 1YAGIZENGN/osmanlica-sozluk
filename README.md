@@ -1,1 +1,0 @@
-# osmanlica-sozluk
